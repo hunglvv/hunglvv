@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Testarossa
-- 👀 I’m interested in traveling but so poor :((
-- 🌱 I’m currently learning Compose
+- 👀 I’m training to earn more 2000$ salary 🧧
+- 🌱 I’m currently learning Compose Multiplatform
 - 💞️ 
 - 📫 
 
